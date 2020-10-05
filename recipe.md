@@ -1,7 +1,3 @@
-# Red-Velvet-Cake
-
-Chef : NISHA
-
 I used to be unsure about red velvet. I don’t really trust a cake that has a mystery flavor. What is red velvet? Is it vanilla, chocolate, or just a butter cake tinted red? From red velvet brownies and red velvet cookies and red velvet cupcakes, I’ve had a lot of fun getting to know red velvet. Red velvet is:
 
 Mild cocoa flavor
